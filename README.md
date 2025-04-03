@@ -1,1 +1,1 @@
-Zachary Speiserspeiserz@oregonstate.edu
+Zachary Speiserspeiserz@oregonstate.edublue
